@@ -1,2 +1,1 @@
 # jonathanVanH.github.io
-SchoolStuff
